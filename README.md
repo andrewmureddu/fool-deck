@@ -41,4 +41,4 @@ im barely literate
 
 ---
 
-made with #ChatGPT because im too dumb t
+made with #ChatGPT because im too dumb
