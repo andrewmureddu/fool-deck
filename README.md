@@ -6,7 +6,7 @@ someone told me its cards that tell the future
 
 but i cant even tell you what im eating for lunch
 
-— im too fucking stupid for fortune telling —
+— im too fucking stupid for fortune telling
 
 so i made axioms instead
 
